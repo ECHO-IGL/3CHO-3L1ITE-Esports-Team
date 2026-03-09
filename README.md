@@ -1,1 +1,1 @@
-# 3CHO-3L1ITE-Esports-Team
+# Esport-3CHO-3L1TE
